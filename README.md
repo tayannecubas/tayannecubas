@@ -1,4 +1,4 @@
-## E aê 👋
+## E aê, me chamo Tay! / Hi there, call me Tay! / ¡Hola! Me llamo Tay  👋
 
 <div>
 <a href="https://github.com/tayannecubas">
